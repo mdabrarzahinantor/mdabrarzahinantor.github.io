@@ -126,6 +126,13 @@
 1. Start Business on Islamic Accessories
 ```
 
+> **6. Book Cover Design**
+
+```
+1. Design Logos
+2. Social Media Marketing
+3. Make Portfolio
+```
 ---
 
 ## **🕌 UMMAH**
